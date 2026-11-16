@@ -42,13 +42,28 @@ Lu par tous les skills ig-*. Les textes sont écrits pour être dits à voix hau
 
 ## My positions
 
-À compléter : trois choses qu'il pense et avec lesquelles une partie de son
-public n'est pas d'accord. Pistes à valider avec lui :
+**Pas de leçons.** Louis ne se pose pas en donneur de conseils ni en expert
+(« pas besoin de… », « voici comment réussir… »). Il **montre**, il ne fait pas
+la morale. Il peut aider en partageant son vécu (« moi j'ai fait comme ça »),
+jamais en disant aux autres quoi faire.
 
-1. (ex.) On peut préparer l'ATPL théorique sans école intégrée à 100 000 €.
-2. (ex.) Pilote, ce n'est pas qu'un métier, c'est un style de vie, et ça se
-   voit dans la façon de s'habiller et de s'entraîner.
-3. (ex.) Le sport (running) fait partie de la préparation d'un pilote.
+**L'angle du compte : le mélange des genres.** Un jeune qui a du style, qui
+s'habille bien, qui court, et qui en plus se forme pour devenir pilote de ligne.
+C'est ce contraste qui rend le compte unique : ni un compte aviation technique,
+ni un simple compte mode.
+
+**Objectif n°1 : percer.** Priorité aux formats qui ont le plus de chances de
+devenir viraux, en aviation ou ailleurs. Une belle vidéo qui se partage passe
+avant une vidéo « utile ».
+
+**Formats qu'il aime et qui marchent pour lui :**
+- GRWM (Get Ready With Me) : avant le sport, avant de sortir, avant un vol.
+- Outfits : tenues de sortie, tenues de sport.
+- Images stylées en vol : cockpit, décollages, vues aériennes, photos.
+- Trends et sons tendance, montage dynamique, second degré.
+- Le pont entre ses deux mondes : la tenue de soirée qui devient la tenue de
+  vol, le GRWM qui se termine dans le cockpit, le running qui finit sur un
+  aérodrome.
 
 ## Off limits
 
@@ -73,6 +88,7 @@ Seulement des faits réels. Ne jamais inventer de chiffre.
 ## The ask
 
 - **My keyword CTA, if I use one:** aucun (rien à vendre).
-- **Preferred asks:** des questions ouvertes en commentaire (« Tu aurais choisi
-  quoi ? »), des partages et des enregistrements. Pas de « follow pour plus ».
+- **Preferred asks:** légères et fun : « tenue 1 ou 2 ? », « tu montes ? »,
+  « envoie ça à ton pote qui veut être pilote ». Le but, c'est le partage. Pas de
+  « follow pour plus », pas de ton donneur de leçons.
 - **Where my link goes:** aucun lien pour l'instant.
