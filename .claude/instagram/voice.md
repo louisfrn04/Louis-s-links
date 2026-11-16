@@ -9,9 +9,9 @@ Lu par tous les skills ig-*. Les textes sont écrits pour être dits à voix hau
 
 - **Name:** Louis François
 - **Handle:** @_louisfrancois
-- **What I do, in one sentence:** Élève pilote en formation ATPL chez Aéro
-  Pyrénées, je poste des vidéos lifestyle autour de l'aviation, du style/de la
-  mode et du running.
+- **What I do, in one sentence:** Pilote privé breveté (PPL) en formation ATPL
+  chez Aéro Pyrénées, je poste des vidéos et des photos stylées de moi en vol,
+  et du lifestyle autour de l'aviation, de la mode et du running.
 - **Who I am talking to:** Des jeunes (environ 16-28 ans) qui aiment l'aviation,
   la mode ou le sport, et ceux qui rêvent de devenir pilote sans savoir par où
   commencer. Audience large, pas seulement des pilotes.
@@ -22,7 +22,7 @@ Lu par tous les skills ig-*. Les textes sont écrits pour être dits à voix hau
 
 - **Three of my own reels or captions that sound most like me:** à ajouter
   (liens à envoyer).
-- **On camera I am:** jusqu'ici surtout du montage, des trends et des images
+- **On camera I am:** présent à l'image en vol (vidéos et photos stylées). Jusqu'ici surtout du montage, des trends et des images
   stylées. Un ton entre le sérieux et l'humour (« rire sérieux ») : du second
   degré, mais sans perdre le côté aspirationnel de l'aviation.
 - **Format:** surtout des montages dynamiques calés sur des sons tendance, avec
@@ -55,14 +55,16 @@ public n'est pas d'accord. Pistes à valider avec lui :
 - **Topics I do not post about:** la politique.
 - **Clients, numbers or names I cannot say publicly:** à confirmer (règles
   d'Aéro Pyrénées sur leurs avions et leurs locaux).
-- **Claims I am not allowed to make:** ne jamais se présenter comme pilote
-  breveté ou pilote de ligne : il est en formation. Pas de conseil réglementaire
-  donné comme officiel.
+- **Claims I am not allowed to make:** il est pilote breveté (PPL), mais il ne
+  faut jamais le présenter comme pilote de ligne ou professionnel : l'ATPL est en
+  cours. Pas de conseil réglementaire donné comme officiel.
 
 ## Proof I can use
 
 Seulement des faits réels. Ne jamais inventer de chiffre.
 
+- Pilote privé breveté : PPL obtenu.
+- Vole et se filme en vol (images de cockpit, avion, vues aériennes).
 - En formation ATPL chez Aéro Pyrénées.
 - Pratique le running.
 - À ajouter : examens ATPL réussis, heures de vol, chronos ou distances de
