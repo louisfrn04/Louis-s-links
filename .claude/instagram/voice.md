@@ -20,8 +20,11 @@ Lu par tous les skills ig-*. Les textes sont écrits pour être dits à voix hau
 
 ## What I sound like
 
-- **Three of my own reels or captions that sound most like me:** à ajouter
-  (liens à envoyer).
+- **Three of my own reels or captions that sound most like me:**
+  - « Got the plane, but no cards to play. » (reel trend, son French Montana
+    « Unforgettable », 15 oct.) : légende courte, en anglais, punchline.
+  - « Summer dump ☀️ » (carrousel photos miroir, salle de sport, nuit).
+  - Légendes courtes, souvent en anglais, une ligne max, ton cool et détaché.
 - **On camera I am:** présent à l'image en vol (vidéos et photos stylées). Jusqu'ici surtout du montage, des trends et des images
   stylées. Un ton entre le sérieux et l'humour (« rire sérieux ») : du second
   degré, mais sans perdre le côté aspirationnel de l'aviation.
@@ -82,6 +85,11 @@ Seulement des faits réels. Ne jamais inventer de chiffre.
 - Vole et se filme en vol (images de cockpit, avion, vues aériennes).
 - En formation ATPL chez Aéro Pyrénées.
 - Pratique le running.
+- Meilleur reel : 10,7 K vues, 646 likes, 22 commentaires, 42 partages, 14
+  reposts. Format : lui (lunettes de soleil, chemise à carreaux) devant un avion
+  sur un aérodrome, sur une trend musicale. Commentaire reçu : « Le mec est déjà
+  dans GTA6 ». Le reste du compte tourne autour de 800 à 1,5 K vues.
+- Highlights : Myself & more, Sport, Voitures, Planes.
 - À ajouter : examens ATPL réussis, heures de vol, chronos ou distances de
   running, nombre d'abonnés ou de vues d'une vidéo qui a marché.
 
