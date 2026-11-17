@@ -92,6 +92,18 @@ Seulement des faits réels. Ne jamais inventer de chiffre.
 - Stats 17 oct.-16 nov. 2026 : 679 abonnés, 1 seul reel publié, 10 K vues,
   8,3 K spectateurs uniques (environ 12 fois le nombre d'abonnés), 839 likes,
   53 enregistrements, 28 partages.
+- +498 abonnés nets sur 30 jours (17 oct.-16 nov. 2026), 8 456 comptes touchés.
+- Classement des reels (vues) :
+  1. 10 703 : « Got the plane, but no cards to play. » (lui + avion + trend)
+  2. 2 387 : « They repost the life, I actually live it. » (Porsche GT3 RS)
+  3. 1 207 en 7 h : « Perfect light 🌅 » (coucher de soleil en vol)
+  4. 1 094 : « Work, drink @celsius_france, sport, sleep. And repeat »
+  5. 903 : « On se pousse les fashions » (outfit de nuit)
+  6. 886 : « Airplane, friends, cars. What else ? » (circuit Paul Ricard)
+  7. 836 : « Le plus beau métier au monde. » (cockpit d'avion de ligne)
+  8. 725 : « Oui. »
+  Leçon : son visage + avion + trend = x5 à x10. Les plans sans lui, ou la mode
+  seule, plafonnent vers 800-1 200 vues. Sans publication, les vues tombent à 0.
 - Highlights : Myself & more, Sport, Voitures, Planes.
 - À ajouter : examens ATPL réussis, heures de vol, chronos ou distances de
   running, nombre d'abonnés ou de vues d'une vidéo qui a marché.
