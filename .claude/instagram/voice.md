@@ -12,6 +12,11 @@ Lu par tous les skills ig-*. Les textes sont écrits pour être dits à voix hau
 - **What I do, in one sentence:** Pilote privé breveté (PPL) en formation ATPL
   chez Aéro Pyrénées, je poste des vidéos et des photos stylées de moi en vol,
   et du lifestyle autour de l'aviation, de la mode et du running.
+- **Real audience (stats nov. 2026):** 71 % d'hommes, 62 % de 25-34 ans, 22 % de
+  18-24 ans. 93,5 % en France, 95 % francophones. Pics d'activité : dimanche,
+  lundi et mercredi de 18 h à 21 h. Les stories font 18 K vues sur 30 jours,
+  plus que les reels (11 K). 851 visites du profil, 26 clics sur le lien en bio.
+  Abonnés : 179 → environ 680 d'un coup autour du 25-27 oct. (+547 / -49).
 - **Who I am talking to:** Des jeunes (environ 16-28 ans) qui aiment l'aviation,
   la mode ou le sport, et ceux qui rêvent de devenir pilote sans savoir par où
   commencer. Audience large, pas seulement des pilotes.
