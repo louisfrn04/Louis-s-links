@@ -129,4 +129,4 @@ Seulement des faits réels. Ne jamais inventer de chiffre.
 - **Preferred asks:** légères et fun : « tenue 1 ou 2 ? », « tu montes ? »,
   « envoie ça à ton pote qui veut être pilote ». Le but, c'est le partage. Pas de
   « follow pour plus », pas de ton donneur de leçons.
-- **Where my link goes:** aucun lien pour l'instant.
+- **Where my link goes:** Linktree (linktr.ee/louisfrancois1) qui renvoie vers son TikTok.
