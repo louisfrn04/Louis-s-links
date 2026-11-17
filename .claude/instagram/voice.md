@@ -8,7 +8,10 @@ Lu par tous les skills ig-*. Les textes sont écrits pour être dits à voix hau
 ## Who I am
 
 - **Name:** Louis François
-- **Handle:** @_louisfrancois
+- **Handle:** @_louisfrancois (badge vérifié Meta)
+- **Bio actuelle (17 nov. 2026):** « ✈️ Future airline pilot | ATPL en cours / Vols •
+  Style • Sport », lien linktr.ee/louisfrancois1, 9 publications, 679 abonnés,
+  197 abonnements. Il utilise les « Reels d'essai » (montrés aux non-abonnés).
 - **What I do, in one sentence:** Pilote privé breveté (PPL) en formation ATPL
   chez Aéro Pyrénées, je poste des vidéos et des photos stylées de moi en vol,
   et du lifestyle autour de l'aviation, de la mode et du running.
