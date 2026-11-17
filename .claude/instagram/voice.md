@@ -89,6 +89,9 @@ Seulement des faits réels. Ne jamais inventer de chiffre.
   reposts. Format : lui (lunettes de soleil, chemise à carreaux) devant un avion
   sur un aérodrome, sur une trend musicale. Commentaire reçu : « Le mec est déjà
   dans GTA6 ». Le reste du compte tourne autour de 800 à 1,5 K vues.
+- Stats 17 oct.-16 nov. 2026 : 679 abonnés, 1 seul reel publié, 10 K vues,
+  8,3 K spectateurs uniques (environ 12 fois le nombre d'abonnés), 839 likes,
+  53 enregistrements, 28 partages.
 - Highlights : Myself & more, Sport, Voitures, Planes.
 - À ajouter : examens ATPL réussis, heures de vol, chronos ou distances de
   running, nombre d'abonnés ou de vues d'une vidéo qui a marché.
