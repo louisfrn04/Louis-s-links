@@ -80,6 +80,28 @@ avant une vidéo « utile ».
   vol, le GRWM qui se termine dans le cockpit, le running qui finit sur un
   aérodrome.
 
+## TikTok (@louisfrancois1)
+
+- Bio actuelle : « Pilot ✈️ / Professional pilot incoming ⏳ / 📷 : _louisfrancois »,
+  plus un lien netlify. 1 092 abonnés, 29,4 K j'aime, 167 abonnements.
+- 28 jours (19 oct.-15 nov. 2026) : 30,2 K vues, 22,7 K spectateurs (19,5 K
+  nouveaux), +21 abonnés nets, 90,6 % des vues viennent du « Pour toi ». Gros
+  pic vers le 26 oct. Spectateurs : 57 % de femmes. Abonnés : 57 % d'hommes.
+- Recherches qui l'ont trouvé : « paradise aviation », « louis francois »,
+  « bringing flowers after a run », « lumix », « pilot flying airplane ».
+- Les créateurs que regardent aussi ses spectateurs sont lifestyle / voyage /
+  luxe (Booking.com, Laurent billionaire, etc.).
+- Top vidéos : cockpit d'avion de ligne, main sur les manettes = 120,2 K (la
+  même vidéo n'a fait que 836 vues sur IG) ; vélo / cyclisme 14,8 K ; tenue de
+  nuit en chemise blanche 13,9 K ; vidéo épinglée face cam 13,1 K ; panneau
+  d'avionique 7,4 K ; tenue avec baskets devant le miroir 3,3 K ; « Her
+  post-breakup / Me: unlocked full MAN MODE » 2,8 K. Le reel IG à 10,7 K (avion
+  jaune) n'a fait que 915 vues sur TikTok.
+- Leçon : la même vidéo peut faire 100 fois mieux sur une plateforme que sur
+  l'autre, donc TOUT publier sur les deux. Sur TikTok, les plans POV
+  cockpit/avionique et le lifestyle / sport / tenues marchent aussi. Le point
+  faible est la conversion en abonnés (30 K vues pour +21).
+
 ## Off limits
 
 - **Topics I do not post about:** la politique.
