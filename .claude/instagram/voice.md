@@ -102,6 +102,9 @@ Seulement des faits réels. Ne jamais inventer de chiffre.
   6. 886 : « Airplane, friends, cars. What else ? » (circuit Paul Ricard)
   7. 836 : « Le plus beau métier au monde. » (cockpit d'avion de ligne)
   8. 725 : « Oui. »
+  Détail du reel n°1 (13 s) : 46 % de skip, 8 s de visionnage moyen, 95,9 % de
+  non-abonnés, 65 % des vues depuis l'onglet Reels, rétention à environ 50 % à
+  5 s et 18 % à la fin, seulement +10 abonnés pour 10,7 K vues.
   Leçon : son visage + avion + trend = x5 à x10. Les plans sans lui, ou la mode
   seule, plafonnent vers 800-1 200 vues. Sans publication, les vues tombent à 0.
 - Highlights : Myself & more, Sport, Voitures, Planes.
