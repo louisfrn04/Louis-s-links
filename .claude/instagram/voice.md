@@ -67,7 +67,7 @@ s'habille bien, qui court, et qui en plus se forme pour devenir pilote de ligne.
 C'est ce contraste qui rend le compte unique : ni un compte aviation technique,
 ni un simple compte mode.
 
-**Objectif n°1 : percer.** Priorité aux formats qui ont le plus de chances de
+**Objectif n°1 : percer, sur Instagram ET sur TikTok** (même contenu, exporté sans filigrane, adapté à chaque plateforme). Priorité aux formats qui ont le plus de chances de
 devenir viraux, en aviation ou ailleurs. Une belle vidéo qui se partage passe
 avant une vidéo « utile ».
 
