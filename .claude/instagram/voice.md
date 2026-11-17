@@ -20,6 +20,10 @@ Lu par tous les skills ig-*. Les textes sont écrits pour être dits à voix hau
   lundi et mercredi de 18 h à 21 h. Les stories font 18 K vues sur 30 jours,
   plus que les reels (11 K). 851 visites du profil, 26 clics sur le lien en bio.
   Abonnés : 179 → environ 680 d'un coup autour du 25-27 oct. (+547 / -49).
+  ⚠️ Environ 370 de ces abonnés ont été ACHETÉS (le 25-27 oct.). Vraie base
+  organique : environ 200-300. Les données démographiques sont donc en partie
+  faussées. Juger les reels sur les vues de non-abonnés, les partages, les
+  enregistrements et les abonnés gagnés, pas sur le nombre d'abonnés.
 - **Who I am talking to:** Des jeunes (environ 16-28 ans) qui aiment l'aviation,
   la mode ou le sport, et ceux qui rêvent de devenir pilote sans savoir par où
   commencer. Audience large, pas seulement des pilotes.
