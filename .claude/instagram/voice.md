@@ -83,7 +83,8 @@ avant une vidéo « utile ».
 ## TikTok (@louisfrancois1)
 
 - Bio actuelle : « Pilot ✈️ / Professional pilot incoming ⏳ / 📷 : _louisfrancois »,
-  plus un lien netlify. 1 092 abonnés, 29,4 K j'aime, 167 abonnements.
+  lien netlify retiré le 17 nov. 1 092 abonnés 100 % réels (aucun achat sur
+  TikTok, contrairement à IG), 29,4 K j'aime, 167 abonnements.
 - 28 jours (19 oct.-15 nov. 2026) : 30,2 K vues, 22,7 K spectateurs (19,5 K
   nouveaux), +21 abonnés nets, 90,6 % des vues viennent du « Pour toi ». Gros
   pic vers le 26 oct. Spectateurs : 57 % de femmes. Abonnés : 57 % d'hommes.
